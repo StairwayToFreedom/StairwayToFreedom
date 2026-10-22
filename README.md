@@ -25,5 +25,5 @@ My boundaries:Do not ask for my real name,And any in real life information,Do no
 
 
 
-If you are Enjoyed reading this pls make sure to follow me if not,I respect it and I wont Force.
-currently in progress tomorrow soon
+If you are Enjoyed reading this pls make sure to follow me if not Its up To you:^
+#currently in progress tomorrow soon
