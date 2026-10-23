@@ -14,9 +14,9 @@ ponytown ss
 Do not interact unless whisper with caution or unless i interact and may free to cuddle me^^
 Do not interact if u are breaking my boundaries   swipe down to see more..
 
+Dni if Problematic, ,Copying me
 
-
-
+![image](https://github.com...)
 
 
 
@@ -24,6 +24,4 @@ My boundaries:Do not ask for my real name,And any in real life information,Do no
 
 
 
-
-If you are Enjoyed reading this pls make sure to follow me if not Its up To you:^
-#currently in progress tomorrow soon
+![image](https://github.com...)  
