@@ -16,7 +16,7 @@ Do not interact if u are breaking my boundaries   swipe down to see more..
 
 Dni if Problematic, ,Copying me
 
-![image](https://github.com...)
+![image:"C:"C:\Users\ivylo\Downloads\c0e5d804-3854-4193-9d74-f44930670512.jpe"](https://github.com...)
 
 
 
@@ -24,4 +24,5 @@ My boundaries:Do not ask for my real name,And any in real life information,Do no
 
 
 
-![image](https://github.com...)  
+![image"C:\Users\ivylo\Downloads\f3e7c67c-514e-4719-bfbc-87434c52c6ba.jpe"
+](https://github.com...)  
