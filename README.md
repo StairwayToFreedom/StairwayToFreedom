@@ -1,4 +1,7 @@
 ᴘʟs ʀᴇᴀᴅ ʜᴇʀᴇ! 
+
+
+
 <img width="200" height="266" alt="3743" src="https://github.com/user-attachments/assets/c2d04f4f-0bb6-4b64-802c-5f5df05e005f" />
 
 
@@ -44,6 +47,7 @@
 
 
 1.sɪʟᴇɴᴛʟɪʟʏ
+<img width="67" height="80" alt="3745" src="https://github.com/user-attachments/assets/69608cbe-c416-4aef-9745-26dbb67abb11" />
 
 
 2.ᴘᴜʀᴇʟɪʟʏ
