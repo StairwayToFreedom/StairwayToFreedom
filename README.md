@@ -49,7 +49,13 @@
 1.sɪʟᴇɴᴛʟɪʟʏ
 
 <img width="67" height="80" alt="3745" src="https://github.com/user-attachments/assets/69608cbe-c416-4aef-9745-26dbb67abb11" />
-<img width="588" height="426" alt="3789" src="https://github.com/user-attachments/assets/8fcac9b8-c6ac-40c6-a2ed-ccf8bf25ce35" />
+<img width="501" height="611" alt="3842" src="https://github.com/user-attachments/assets/4d377c14-cfe4-4406-b372-d97015b20fdd" />
+
+
+
+
+
+
 
 
 2.ᴘᴜʀᴇʟɪʟʏ
